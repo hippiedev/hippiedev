@@ -7,6 +7,6 @@
 - 🤔 I’m looking for help with my back pain
 - 💬 Ask me about the anime I'm currently watching
 - 📫 How to reach me: don't
-- 😄 Pronouns: he/him/the awesome one
+- 😄 Pronouns: he/him/the evil one
 - ⚡ Fun fact: I can probably drink bottled water faster than you
 
